@@ -9,7 +9,7 @@
 
 #### Connect with me:
 
-[![LinkedIn](https://img.icons8.com/ios-filled/50/000000/linkedin.png)](https://www.linkedin.com/in/khaydukovaolesya/)
+[![LinkedIn](https://img.icons8.com/color/48/000000/linkedin.png)](https://www.linkedin.com/in/khaydukovaolesya/)
 
 #### Skills and Tools:
 
